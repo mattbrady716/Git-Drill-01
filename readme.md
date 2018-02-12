@@ -1,0 +1,1 @@
+Lt. Col. Frank Slade: Out of order. I'll show YOU "out of order"! You don't know what "out of order" is, Mr. Trask. I'd show you, but I'm too old, I'm too tired, I'm too fucking blind. If I were the man I was five years ago, I'd take a... [slams his cane on the desk, screaming] FLAMETHROWER to this place!
